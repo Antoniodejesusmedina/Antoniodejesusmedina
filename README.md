@@ -1,4 +1,3 @@
-![IMG-20240729-WA0079](https://github.com/user-attachments/assets/acfa6d4a-f0da-441f-8a46-3331c83d90f8)
 ## Hi there 👋
 
 <!--
